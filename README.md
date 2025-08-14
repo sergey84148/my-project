@@ -11,9 +11,10 @@
 
 ## Контакты 📱
 
-✉️\\ Email: serega.84@mail.ru\\
-\\https://vk.com/id43695104\\ 
+✉️ Email: serega.84@mail.ru\\
+\\https://vk.com/id43695104
  
 
 ![Фото профиля](./photo.jpg)
+
 
